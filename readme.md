@@ -1,4 +1,4 @@
-<h2 align="center">Discord Server: <a href="https://discord.gg/catcha">discord.gg/catcha</a></h2>
+<h2 align="center">Discord Server: <a href="https://discord.com/invite/hktVzrff54">https://discord.com/invite/hktVzrff54</a></h2>
 
 <p align="center">
 <strong>Star and follows before I release</strong>
